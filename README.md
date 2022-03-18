@@ -18,6 +18,6 @@ It's because I have to.
 **In all seriousness though**, this has been really fun figuring out!
 
 ## Helpful Links
-1. Here's the link to information about **where I'm from**!  
+1. Here's the link to information about **[where I'm from](https://github.com/yulizhu0/githubproj/blob/132a112b8ab456bee2457a9e8a15c90d2692870d/WhereI'mFrom.md)**!  
 2. Here's the link to informatin about **who I am**!  
 3. Here's the link to information about **what I do**!
