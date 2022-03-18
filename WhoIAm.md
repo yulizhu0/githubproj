@@ -7,4 +7,9 @@ Growing up in Missouri was an odd experience. As a kid, I began to encounter cov
 
 >Why do people keep telling me that I'm different?
 
-It peaked in middle school (middle school was probably purgatory for everyone including the teachers, lets be real) and I started experiencing more blatant discrimination. I remember in choir a kid named Ora turned to me and told me "you eat dog" straight to my face. I was flabbergasted as the more I kept denying it, he kept insisting that I did in front of the other choir kids. Even while he was doing this, nobody in our vicinity even tried to interject or interrupt him. 
+It peaked in middle school (middle school was probably purgatory for everyone including the teachers, lets be real) and I started experiencing more blatant discrimination. I remember in choir a kid named Ora turned to me and told me "you eat dog" straight to my face. I was flabbergasted as the more I kept denying it, he kept insisting that I did in front of the other choir kids. Even while he was doing this, nobody in our vicinity even tried to interject or interrupt him. **The complicity of others was more than enough to make me feel like a outsider**.
+
+When I got to highschool, I met another Chinese girl, Ivy, who eventually became my dear friend and safe space. We bonded over our shared experiences, the cultural delicacies we both enjoyed, our broken Chinese, and our identities. I didn't realize how healing it was to find another person who I related to as much as I did to her. Our friendship helped me become much more confident in my culutral identity and overcome the shame I had harbored all of my childhood.
+
+## Where I Am Now
+Now, I'm proud to be who I am and represent the things I represent: _an Asian-American_. I'm proud to be Mizzou's Asian American Association's Advocacy chair where I get to talk to others about experiences like this and let other Asian-Americans know that **they're not alone in their struggles or celebrations**. I love who I've become.
