@@ -9,7 +9,7 @@ I'm just going to go over some basic introductory facts 'bout myself: **[where I
 * I was raised in **Kansas City, Missouri**
 * I work at the Student Center and Ellis help desk as an IT Consultant for the DoIT **here at Mizzou**
 * I have a black cat named Hammy _(the "H" stands for heinous)_  
-  * <img src = "https://user-images.githubusercontent.com/101818635/159079548-b334bdeb-921a-4c82-a231-a41a8c0ff3f9.jpg" width = "300" length = "300">
+<img src = "https://user-images.githubusercontent.com/101818635/159079548-b334bdeb-921a-4c82-a231-a41a8c0ff3f9.jpg" width = "300" length = "300">
 
 ## Why Am I Doing This?
 It's because I have to.  
