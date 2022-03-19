@@ -20,4 +20,4 @@ It's because I have to.
 ## Helpful Links
 1. Here's the link to information about **[where I'm from](WhereI'mFrom.md)**!  
 2. Here's the link to informatin about **[who I am](WhoIAm.md)**!  
-3. Here's the link to information about **what I do**!
+3. Here's the link to information about **[what I do](WhatIDo.md)**!
