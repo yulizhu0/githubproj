@@ -13,3 +13,5 @@ In my free time (which is nowadays very rare), I like to **draw**, **play piano*
 Like I mentioned earlier, I really want to learn how to do **UX/UI design**! I might look on _Coursera_ for some courses I can take during the summer. I'm going to be in New York **again** for the Summer, so I might decide to volunteer with some local-nonprofits.
 
 ![UX/UI Graphic](https://miro.medium.com/max/1400/1*hp-yfKsmzsj711iLbM8eEw.jpeg)
+
+**[Back](WhoIAm.md)** **[Next]()**
