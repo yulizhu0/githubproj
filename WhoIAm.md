@@ -13,3 +13,6 @@ When I got to highschool, I met another Chinese girl, Ivy, who eventually became
 
 ## Where I Am Now
 Now, I'm proud to be who I am and represent the things I represent: _an Asian-American_. I'm proud to be Mizzou's Asian American Association's Advocacy chair where I get to talk to others about experiences like this and let other Asian-Americans know that **they're not alone in their struggles or celebrations**. I love who I've become.
+
+**[Back](WhatIDo.md)**
+**[Next]()**
