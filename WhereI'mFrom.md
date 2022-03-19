@@ -14,4 +14,4 @@ Nowadays, you can find me attending the **University of Missouri - Columbia** in
 
 ![Flushing Chinatown](https://upload.wikimedia.org/wikipedia/commons/9/93/41stAveFlushing.jpg)
 
-**[Back](README.md)**                                                                                                                                                 **[Next](
+**[Back](README.md)**                                                                                                                                                 **[Next](WhoIAm.md)**
